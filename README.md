@@ -1,4 +1,3 @@
-<meta name="google-site-verification" content="bDMurC7uKRgmkLgSzzimNmVMOhKs_tpUONd61wULY3U" />
 <h1>Taraftarium24</h1>
 <p>Futbol tutkunları için büyük maçlar, heyecan ve coşku demektir. Taraftarium24 platformu, 09.02.2025 19:00 tarihinde oynanacak ⚽️ GALATASARAY A.Ş. 🆚 ADANA DEMİRSPOR ⚽️ maçını sürekli ve yüksek kaliteyle izleme fırsatı sunuyor.</p>
 
